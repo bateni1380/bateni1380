@@ -2,7 +2,7 @@
 
 
 - 🌱 I’m currently studing Computer Science and Mathematics at Amirkabir University of Technology.
-- 📫 How to reach me: Linkedin-> Mohammad Reza Bateni OR Email: bateni1380@gmail.com
+- 📫 How to reach me: ([Linked In](https://www.linkedin.com/in/mohammad-reza-bateni-a58936142/)) OR ([Email](mailto:bateni1380@gmail.com))
 - ✌ " "
 
 
