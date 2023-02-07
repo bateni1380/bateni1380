@@ -1,7 +1,7 @@
 ### Hi I'm Mohammad Reza 👋
 
 
-- 🌱 I’m currently studing Computer Science and Mathematics.
+- 🌱 I’m currently studing Computer Science and Mathematics at Amirkabir University of Technology.
 - 📫 How to reach me: Linkedin-> Mohammad Reza Bateni OR Email: bateni1380@gmail.com
 - ✌ " "
 
